@@ -1,6 +1,8 @@
 # VCE-Archive
 
-hiii, thanks for checking out my archive of VCE resources, I hope you find them useful. 
+hiii !! (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ 
+
+thanks for checking out my archive of VCE resources, I hope you find them useful. 
 
 eng, gen, jpn, methods, and music comp. resources are currently unavailable
 
